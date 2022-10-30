@@ -1,4 +1,4 @@
-# awsome_live_tv
+# awsome live tv
 List of Live TV Links
 
 ## For Free Live TV Experiences
